@@ -1,1 +1,1 @@
-Hello,beautiful day
+new day new begining
